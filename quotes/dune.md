@@ -1,1 +1,1 @@
-May the knight chip and shatter
+These are new dune quotes
